@@ -7,3 +7,11 @@ We know you want to show off your fabulous furry face, so we've given you space 
 For those who are camera-shy, we recommend posting at least one to bring your profile some attention.
 
 Showcase your best self - whether that means a fresh...etc etc
+
+## Where do I list my favorite treats
+
+Open the app and click on edit profile
+
+scroll down to sectio called paragraph two etc etc...
+
+when you are done, click "Save Changes" to save
